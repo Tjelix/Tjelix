@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Tjelix
+- 👀 I’m interested in media 
+- 🌱 I’m currently learning about video and audio 
